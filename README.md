@@ -1,1 +1,0 @@
-# Tugas-1-PBO-G1A022045-David-Thimotius
